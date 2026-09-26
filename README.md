@@ -22,4 +22,4 @@ Spanish & Catalan (native) · English (professional) · French · Chinese (basic
 
 ### 📫 Contact
 
-[LinkedIn](https://linkedin.com/in/roberto-bustamante-b12a072a0) · robertobustamanteperez25@gmail.com
+[LinkedIn](https://linkedin.com/in/roberto-bustamante-perez) · robertobustamanteperez25@gmail.com
